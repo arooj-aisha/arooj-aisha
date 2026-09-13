@@ -1,4 +1,4 @@
-### Hi, I'm Aisha 👋
+### Hi, I'm Aisha Arooj 👋
 
 BMET student | Aspiring biomedical software developer
 
